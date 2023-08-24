@@ -6,4 +6,4 @@
 - Estamos imteresadas em ganhar nota.
 - Somos alunas da professora carla0411.
 - Ate que gostamos muito da professora.
-- Segue nos no insta iisa_._sillva.
+- Segue eu no insta iisa_._sillva.
